@@ -30,5 +30,11 @@ https://docs.google.com/file/d/0B5337PCtIdC5aG5hbDhzTUdRWWM/edit
 https://issuu.com/arete1964/docs/gu__a_did__ctica_el_nombre_de_la_ro_ef1aacf3ae6c4c
 https://rafaelrobles.com/filo/index.php?title=Discusi%C3%B3n:El_nombre_de_la_rosa
 https://auladefilosofia.net/2008/10/29/eco-el-nombre-de-la-rosa/
+https://wp.catedu.es/dovela4/el-nombre-de-la-rosa/ (en realidad es un trabajo de clase)
+http://iescincaalcanadre.catedu.es/mas-ejemplos-de-uso-didactico-del-cine-el-nombre-de-la-rosa/
+https://es.slideshare.net/msanzpareja/gua-didctica-el-nombre-delarosa
+https://issuu.com/arete1964/docs/gu__a_did__ctica_el_nombre_de_la_ro_ef1aacf3ae6c4c
+https://rafaelrobles.com/filo/index.php?title=El_nombre_de_la_rosa
+http://www.centrocp.com/el-nombre-de-la-rosa/
 
 **Metadatos**: Intriga histórica, Edad Media, siglo XIV, crímenes, novela histórica, monjes franciscanos, bibliotecas, abadías, Iglesia, asesinatos, investigación, drama, Umberto Eco

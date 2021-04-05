@@ -24,4 +24,7 @@ Una situación habitual en todas las bibliotecas… Esa función social en ocasi
 
 Un documento muy interesante en la línea del primero, es la propuesta de Barbara J. Ford en su texto: Todos son bienvenidos: la biblioteca pública como espacio de integración ciudadana.
 
+https://soybibliotecario.blogspot.com/2019/04/the-public-pelicula-rol-social-bibliotecas.html
+https://www.julianmarquina.es/the-public-la-trepidante-pelicula-que-muestra-la-labor-social-de-las-bibliotecas-publicas/
+
 **Metadatos**: Dramas cinematográficos ; Pobreza ; Bibliotecas Públicas

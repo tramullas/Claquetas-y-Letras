@@ -31,5 +31,10 @@ Además, está inspirado en sucesos reales, en concreto en el Huracán Katrina q
 * https://www.youtube.com/watch?v=sn37hZRDxAk
 * https://www.google.com/url?sa=t&rct=j&q=&esrc=s&source=web&cd=&ved=2ahUKEwiqj-7U69_vAhXU7eAKHTAmDfYQFjACegQIFBAD&url=https%3A%2F%2Frevistas.comillas.edu%2Findex.php%2Fpadresymaestros%2Farticle%2Fdownload%2F7868%2F7654%2F&usg=AOvVaw1HByhrCsGMeKmCQ29rEJD1 
 * https://www.youtube.com/watch?v=c0Xe72G5BC8
+* https://www.youtube.com/watch?v=WITebeGT-Lk
+* http://apegoyliteratura.es/resena-los-fantasticos-libros-voladores-del-sr-morris-lessmore/
+* https://comunidaddeautores.org/los-fantasticos-libros-voladores-del-senor-morris-lessmore/
+* https://auzperrikoliburutegia.wordpress.com/tag/los-fantasticos-libros-voladores-del-sr-morris-lessmore/
+* https://colegioatalaya.com/tercero-de-primaria-22-04/
 
 **Metadatos**: Animación, fantasía, libros, lectura, biblioteca, aventuras, amistad, infantil, superación, esperanza

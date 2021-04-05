@@ -30,5 +30,6 @@ La película resume la paradoja de encontrar por un lado la literatura convertid
 ### Recursos didácticos
 
 Breu Pañella, Ramón (2019). La biblioteca de los libros rechazados. Aula de Secundaria, 34. https://www.grao.com/es/producto/la-biblioteca-de-los-libros-rechazados-as03497953
+https://libroveolibroleo.com/blog/resena-la-biblioteca-de-los-libros-rechazados-david-foenkinos/
 
 **Metadatos**:  Whodunit, comedia, misterio, suspense, Francia, Literatura, Mundo editorial, Medios de comunicación, marketing literario

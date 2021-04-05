@@ -38,5 +38,7 @@ Gago Menor, Andrea (2011). Farenheit 451, de Ray Brabury. (Cine. Derechos Humano
 ¿Internet acabará con la lectura?
 Bahrani, Ramin (2018, Mayo 18) Por qué ‘Fahrenheit 451’ representa nuestra era de redes sociales. The New York Times.
 https://www.nytimes.com/es/2018/05/14/espanol/cultura/fahrenheit-451-hbo-ray-bradbury.html
+https://auladefilosofia.net/2008/10/24/truffaut-farenheit-451/
+https://lenguamaca.files.wordpress.com/2011/05/farenheit451.pdf
 
 **Metadatos**: Drama, Ciencia-ficción, ucronía, bibliocausto, libertad, cultura, derecho a la información, inquietud intelectual

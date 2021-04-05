@@ -30,6 +30,8 @@ En definitiva, se alude a la cultura como pilar fundamental para poder afrontar 
 
 ### Recursos didácticos
 
-Un punto de
+https://www.aacademica.org/000-052/749
+https://elcorazonmecanico.wordpress.com/2016/04/17/pelicula-el-lector-analisis-juridico/
+https://www.eticaycine.org/el-lector
 
 **Metadatos**: Drama, crimen, Alemania, nazismo, holocausto, lectura, analfabetismo, alfabetización, posguerra, romance
