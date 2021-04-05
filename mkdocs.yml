@@ -1,0 +1,19 @@
+site_name: Claquetas y Letras
+site_author: Tramullas
+
+nav:
+- Inicio: index.md
+- El nombre de la rosa: rosa.md
+- Los fantásticos libros voladores del señor Morris Lessmore: morris.md
+- Corazón de tinta: corazon.md
+- Matilda: matilda.md
+- La biblioteca (The Public): biblioteca.md
+- La sociedad literaria y el pastel de piel de patata: patata.md
+- La ladrona de libros: ladrona.md
+- La princesa prometida: princesa.md
+- La librería: libreria.md
+- Farenheit 451: farenheit.md
+- La biblioteca de los libros rechazados: rechazados.md
+- El lector: lector.md
+theme: readthedocs
+
